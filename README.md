@@ -2,10 +2,12 @@
 
 Sou a Professora Évelyn Vicentin
 
-- Trabalho na escola [Nicota](https://www.instagram.com/escola.donanicota/)
+- 📫 **evelynandrade@prof.educacao.sp.gov.br** 📧
 
-  - Aqui ficarão meus projetos relacionados ao curso CMSP-Alura
+  - Trabalho na escola [@Nicota](https://www.instagram.com/escola.donanicota/)
 
- - # 2024
+    - Aqui ficarão meus projetos relacionados ao curso CMSP-Alura
+
+      - # 2024
 
 ![](https://media1.tenor.com/m/QFqiVgo0CNIAAAAC/look-at-aurum-dog-aurum-so-cute.gif)
